@@ -4,6 +4,24 @@ Looking for affordable faxing solutions without the high price tag?
 
 With the [iFax coupon code](https://www.ifaxapp.com/pricing/?utm_medium=affiliates&fpr=shadow), you can save 50% on one of the most reliable and efficient online fax services available.
 
+[![iFax-Plans-and-Pricing-Unbeatable-Pricing-No-Hidden-Fees--04-06-2025_09_34_AM](https://github.com/user-attachments/assets/bc415e49-9cbf-4bd5-9839-3cfd06587a5c)](https://www.ifaxapp.com/pricing/?utm_medium=affiliates&fpr=shadow)
+
+## 20% Discount on iFax Pro Plan
+
+Take advantage of a 20% discount on the iFax Pro Plan by using the promo code COUPONBIRDS at checkout. This comprehensive plan offers advanced features suitable for high-volume users. Hurry, this offer expires on May 7, 2025.
+
+[![428582052-9517fe83-8ac0-4b83-a571-d0131c570185](https://github.com/user-attachments/assets/73237a2a-4416-466d-bb57-3e0fe3f609fd)](https://www.ifaxapp.com/pricing/?utm_medium=affiliates&fpr=shadow)
+
+## Get 15% Off iFax Plus Plan
+
+Upgrade to the iFax Plus Plan and receive a 15% discount by applying the coupon code IFAXSAVE15 during checkout. This plan includes both sending and receiving faxes, HIPAA compliance, and access to mobile and desktop apps. Offer valid until April 25, 2025.
+
+[![428582052-9517fe83-8ac0-4b83-a571-d0131c570185](https://github.com/user-attachments/assets/73237a2a-4416-466d-bb57-3e0fe3f609fd)](https://www.ifaxapp.com/pricing/?utm_medium=affiliates&fpr=shadow)
+
+## Save 10% on iFax Basic Plan
+
+Enjoy a 10% discount on the iFax Basic Plan using the promo code HONEYIFAX10 at checkout. This plan allows you to send faxes and is ideal for occasional users. Act now to take advantage of this limited-time offer and streamline your faxing needs.
+
 [![428582052-9517fe83-8ac0-4b83-a571-d0131c570185](https://github.com/user-attachments/assets/73237a2a-4416-466d-bb57-3e0fe3f609fd)](https://www.ifaxapp.com/pricing/?utm_medium=affiliates&fpr=shadow)
 
 ## Top iFax Coupon Codes
